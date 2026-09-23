@@ -1,2 +1,0 @@
-# zyousyobennkyouyou
-zyousyobennkyou
